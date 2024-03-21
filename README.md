@@ -1,1 +1,1 @@
-Hi, I’m @vinivexry X_X
+Hi, I’m Vinivexry X_X
